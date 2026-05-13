@@ -1,4 +1,4 @@
-
+Get the ultimate Mullvad extension with Mullvad elite Extension: auto-connect & free-trial. Featuring auto-connect and free-trial, it's the best choice for secure and private
 
 
 
